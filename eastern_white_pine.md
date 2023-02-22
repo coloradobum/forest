@@ -1,0 +1,1 @@
+Eastern White Pine Tree (Pinus strobus)
